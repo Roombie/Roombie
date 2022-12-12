@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Roombie
+- 👀 I’m interested in ... video games, coding, drawing, animating, video editing 
+- 🌱 I’m currently learning ... pixel animation, coding and digital draws
+- 📫 How to reach me ... via Twitter https://twitter.com/Roombie_ where I post pixel art.
